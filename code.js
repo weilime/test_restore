@@ -1,6 +1,6 @@
-i am fine. everything is good.
-hahahaha
-happy new year.
-you are the best.
-What a wonderfu Friday!
+i ududuududd
+yesterday
+today
+i have a dream!
+no matter what i say, she does not want to understand.
 
